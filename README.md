@@ -1,1 +1,2 @@
 Cybersecurity-professional-statement
+Two years ago I passed the IT support certificate and i would love to extend it as i have not yet the opportunity and possibility to work in this field. I personnaly want to learn more  with all about protecting systems, networks, and data from attacks, unauthorized access, or damage. It's about keeping digital information safe from threats for myself and obviously other company or organisation i will work for in the future.
